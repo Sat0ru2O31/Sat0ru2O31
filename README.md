@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sat0ru2O31
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ..
+- 💞️ I’m looking to collaborate on ..oqiaks
 - 📫 How to reach me satoru)))
 - 😄 Pronouns: ujhyserrghtyj
 Sat0ru2O31/Sat0ru2O31 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
