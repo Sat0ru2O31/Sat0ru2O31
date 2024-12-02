@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sat0ru2O31
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...efihjrfkerghodrjgbrgtergfrgvrf
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ..oqiaks
 - 📫 How to reach me satoru)))
