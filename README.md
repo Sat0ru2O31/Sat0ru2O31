@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sat0ru2O31
 - 👀 I’m interested in ...e bgfsgn ggb
-- 🌱 I’m currently learning ...ertfghj
+- 🌱 I’m currently learning ...gfvciuhijk
 - 💞️ I’m looking to collaborate on ...kughjk
 - 📫 How to reach me satoru)))
 - 😄 Pronouns: ujbgdagbrdbgd
